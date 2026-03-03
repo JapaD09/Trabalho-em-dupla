@@ -1,1 +1,1 @@
-big bad john
+apagando só
